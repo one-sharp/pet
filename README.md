@@ -1,6 +1,10 @@
 
 
-Uploading 演示视频.mp4…
+
+
+https://github.com/user-attachments/assets/2893aa4f-4bdd-4ef5-a3ca-e7d15e7c77eb
+
+
 
 # pet
 应用介绍
